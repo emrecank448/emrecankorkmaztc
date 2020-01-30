@@ -1,2 +1,0 @@
-# emrecankorkmaztc
-Süper
